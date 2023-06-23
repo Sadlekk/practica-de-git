@@ -1,0 +1,3 @@
+1.  Toma la masa reservada anteriormente y estírala en forma redonda del tamaño de tu molde. Coloca en la lata y pínchala con un cuchillo o palillo en toda la masa menos los bordes. Coloca la salsa sobre la masa esparciéndola sin llegar a los bordes y coloca los toppings previamente cortados en pedazos, a tu gusto.
+2. hornea.
+  Lleva la pizza al horno precalentado y hornea durante 10 a 15 minutos. Si ves que se está tostando mucho retírala antes. Antes de servir coloca un chorrito de aceite de oliva sobre la pizza.
