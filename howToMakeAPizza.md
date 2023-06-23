@@ -4,4 +4,4 @@ Deja reposar
 2.  Retira del recipiente y continúa amasando la masa en el mesón enharinado, amasa hasta que la masa se desprenda de tus manos y queda muy tersa. Cúbrela con una toalla limpia y deja reposar durante 2 horas.
 Para la salsa
 
-3.  Para la salsa, coloca todos los ingredientes en un sartén y cocina durante 5 minutos espesando ligeramente la salsa. Enfría y reserva
+3.  Para la salsa, coloca todos los ingredientes en un sartén y cocina durante 5 minutos espesando ligeramente la salsa. Enfría y reserva.
